@@ -1,3 +1,1 @@
-
-
-. ofc credits from crk... or desisters or smth i frogot,, (ihaveamnesia)
+<img src="https://media1.tenor.com/m/V_AcGtr8uocAAAAd/pure-vanilla-cookie-cookie-run-kingdom.gif" alt="a cartoon character with a star on her head is holding a blue heart ."/>![image](https://github.com/user-attachments/assets/98503feb-fe4b-4484-bea4-425368a77ff1)
